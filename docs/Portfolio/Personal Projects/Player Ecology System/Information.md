@@ -1,0 +1,1 @@
+Well, this player ecology system is something I've been working on for years. I've deleted it, restarted, thrown it off my motorcycle (no literally I've chucked a flash drive with a version of it), burned it accidentally, and generally have a seriously unhealthy relationship with it.

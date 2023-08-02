@@ -1,0 +1,1 @@
+So the Let's try segment of my portfolio is literally just that. A "*Hey I've never personally done that so lets try it.*" section
